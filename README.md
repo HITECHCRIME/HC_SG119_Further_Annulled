@@ -25,6 +25,14 @@ nothing stings more than the truth
 the further from you the better the clues
 (the closer to you) the better the clues
 
+alt
+
+pulling dark networks in swoops
+precious you count me for two in the room and i am the fool
+discord still running the booth
+further from you the better the clues
+nothing stings more than the truth
+
 ```
 
 ## Lyrics Production
