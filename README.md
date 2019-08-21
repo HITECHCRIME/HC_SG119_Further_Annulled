@@ -1,12 +1,13 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST - TITLE
+# MOTHNODE_ Further Annulled
 
 **Listen now:** x
 
 ## Project Data
 
 Description.
+FREE_Gunna_x_Polo_G_Type_Beat_-_Sense_Ft._Roddy_Ricch_GUITAR_Free_Type_Beat_2019-youtube-QRk02I96DUg-251
 
 
 **Title:**  / **Featuring:** 
@@ -16,7 +17,13 @@ Description.
 ## Lyrics
 
 ```
-
+pulling dark networks in swoops
+discord still running the booth
+precious count me for two in the room
+and i am the fool
+nothing stings more than the truth
+the further from you the better the clues
+(the closer to you) the better the clues
 
 ```
 
