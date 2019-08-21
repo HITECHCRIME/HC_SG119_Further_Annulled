@@ -33,6 +33,8 @@ discord still running the booth
 further from you the better the clues
 nothing stings more than the truth
 
+that makes more sense to me now than the truth
+
 ```
 
 ## Lyrics Production
