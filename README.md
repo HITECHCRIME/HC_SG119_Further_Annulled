@@ -23,7 +23,24 @@ precious count me for two in the room
 and i am the fool
 nothing stings more than the truth
 the further from you the better the clues
+(the closer to you) the better the clues aye
+
+pulling dark networks in swoops
+discord still running the booth
+precious count me for two in the room
+and i am the fool
+
+nothing stings more than the truth
+the further from you the better the clues
 (the closer to you) the better the clues
+
+pulling dark networks in swoops
+discord still running the booth
+precious count me for two in the room
+and i am the fool
+nothing stings more than the truth
+the further from you the better the clues
+(the closer to you) the better the clues aye
 
 alt
 
